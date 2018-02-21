@@ -1,2 +1,2 @@
 # ButterflyParadise
-![ALT TEXT](bp.jpg) 
+![GROWTH](bp.jpg)
