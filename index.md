@@ -1,6 +1,7 @@
 #**YOGA**
 
-![RELAXATION] (https://github.com/kharris157/kharris157.github.io/blob/master/B45ED00A-F223-43AC-AF4F-31728F4D049B.jpeg "title")
+![RELAXATION]
+(https://github.com/kharris157/kharris157.github.io/blob/master/B45ED00A-F223-43AC-AF4F-31728F4D049B.jpeg "title")
 
 ##**BIO**
 ### Yoga has been apart of my life since approximately around the age of twelve. Afyer joining the military yoga became more apart of my daily routine. Yoga has helped me manage stress, back or neck pain, sleeping problems, and the inability to concentrate. Yoga has been very effective in helping me with coping skills and has been a big part of ny self care. Yoga’s incorporation of meditation and breathing can help improve a person’s mental well-being. Regular yoga practice creates mental clarity and calmness; increases body awareness; relieves chronic stress patterns; relaxes the mind; centers attention; and sharpens concentration, and self-awareness are particularly beneficial, because they can help with early detection of physical problems and allow for early preventive action. 
