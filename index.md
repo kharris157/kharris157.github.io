@@ -1,6 +1,6 @@
-# **YOGA**
+#                   **YOGA**
 
-### ***MIND, BODY, SOUL***
+###           ***MIND, BODY, SOUL***
 
 ![YOGA POSE](https://oneikasyogalife.files.wordpress.com/2013/01/185765_455305647851590_2029549353_n.jpg)
 
