@@ -1,6 +1,6 @@
 ![##**BIO**##]
 
-![Black Man](men doing yoga.jpg)
+![Black Man](https://github.com/kharris157/kharris157.github.io/blob/master/men%20doing%20yoga.jpg)
 
 ![Black Man](https://github.com/kharris157/kharris157.github.io/blob/master/yoga.jpg)
 
