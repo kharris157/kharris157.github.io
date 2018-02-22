@@ -1,4 +1,6 @@
-![##**BIO**##](men doing yoga.jpg)
+![##**BIO**##]
+
+![Black Man](men doing yoga.jpg)
 
 
 
