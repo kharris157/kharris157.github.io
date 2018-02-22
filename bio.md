@@ -1,4 +1,4 @@
-[##**BIO**##](
+[##**BIO**##](https://github.com/kharris157/kharris157.github.io/blob/master/bio.md)
 
 
 ![Black Man](https://github.com/kharris157/kharris157.github.io/blob/master/yoga.jpg)
