@@ -1,5 +1,3 @@
-![Black Man](yoga.jpg) 
-
 ![##**BIO**##](kharris157.github.io/bio.md)
 
 ![Black Man](yoga.jpg)
