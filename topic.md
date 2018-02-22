@@ -1,4 +1,4 @@
-![Black Man](https://github.com/kharris157/kharris157.github.io/blob/master/yoga)
+![Black Man](https://www.instagram.com/p/1CL-yrO5OX/?utm_source=ig_embed&utm_campaign=embed_ufi_test)
 
 ### A small fact about yoga is it can also be great for fitness. It builds muscle strenghth, protecting from conditions like arthritis and back pain. When building strength through yoga, you balance it with flexibility. 
 ### Yoga’s incorporation of meditation and breathing can help improve a person’s mental well-being. Regular yoga practice creates mental clarity and calmness; increases body awareness; relieves chronic stress patterns; relaxes the mind; centers attention; perfects posture; boost immune system; and lowers blood sugar and blood pressure just to name a few. 
