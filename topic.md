@@ -8,7 +8,6 @@
 
 ![types](http://www.stylesofliving.com/wp-content/uploads/2016/12/5-Types-of-Yoga-Their-Benefits.jpg)
 
-
 ### Anusara Yoga is a popular style of yoga that was founded by John Friend in the late 1990s. It is one of the fastest growing methods of yoga in the US today. Anusara highlights alignment, "heart-opening" postures, and the spiritual and meditative aspects of yoga.
 
 ### Kundalini Yoga leads an individual to enlightenment. The concept of Kundalini has been an integral part of ancient Hindu philosophy. Kundalini Yoga aims at attracting the untapped energy or the Kundalini that remains coiled at the base of the spine, by using a set of technique that uses the individual's mind, senses and body. Apart from the physical postures or the asanas, the person performs meditation, chants mantras and awakens each of the seven chakras of the body. 
