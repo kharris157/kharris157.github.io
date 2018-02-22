@@ -8,7 +8,7 @@
 
 ### ***DIFFERENT TYPES OF YOGA***
 
-![TYPES](https://github.com/kharris157/kharris157.github.io/blob/master/topic.)
+![TYPES](https://github.com/kharris157/kharris157.github.io/blob/master/topic.md)
 
 ### Anusara Yoga is a popular style of yoga that was founded by John Friend in the late 1990s. It is one of the fastest growing methods of yoga in the US today. Anusara highlights alignment, "heart-opening" postures, and the spiritual and meditative aspects of yoga.
 
