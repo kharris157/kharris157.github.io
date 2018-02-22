@@ -2,7 +2,7 @@
 
 ![Black Man](men doing yoga.jpg)
 
-
+https://github.com/kharris157/kharris157.github.io/blob/master/yoga.jpg
 
 
 ### A small fact about yoga is it can also be great for fitness. It builds muscle strenghth, protecting from conditions like arthritis and back pain. When building strength through yoga, you balance it with flexibility. 
