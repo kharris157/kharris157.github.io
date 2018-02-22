@@ -1,5 +1,5 @@
 ![##**BIO**##](men doing yoga.jpg)
-(kharris157.github.io/bio.md)
+
 
 
 
