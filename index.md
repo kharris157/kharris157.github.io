@@ -9,4 +9,4 @@
 
 ### Yoga has been apart of my life since approximately around the age of twelve. After joining the military yoga became more apart of my daily routine. Yoga has helped me manage stress, back pain, sleeping problems, and the inability to concentrate. Yoga has been very effective in helping me with coping skills and has been a big part of my daily practice of self care. 
 
-## [**TOPIC**](http://kharris157.github.io/topic.bio)
+## [**TOPIC**](http://kharris157.github.io/topic)
